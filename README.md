@@ -77,8 +77,6 @@ I'm passionate about:
 
 **LinkedIn:** *https://www.linkedin.com/in/anunaypal/*
 
-**Portfolio:** **
-
 **Email:** *anunaypal5@gmail.com*
 
 ---
